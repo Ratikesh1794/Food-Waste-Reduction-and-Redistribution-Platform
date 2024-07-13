@@ -1,1 +1,0 @@
-# Food-Waste-Reduction-and-Redistribution-Platform
